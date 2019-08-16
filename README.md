@@ -1,1 +1,1 @@
-# icon-branding-guide
+# ICON Brand Guidelines (Unofficial)
